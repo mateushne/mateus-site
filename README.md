@@ -2,6 +2,5 @@
 
 🌟 **Promotor de Vendas e Desenvolvedor Web**  
 🎯 Iniciante em Cloud Computer  
-📈 Busco oportunidades para aplicar tecnologia e crescimento em empresas!  
-🔗 [LinkedIn](https://linkedin.com/in/SEU_PERFIL)  
+📈 Busco oportunidades para aplicar tecnologia e crescimento em empresas!   
 📩 **Email:** mateushn002@gmail.com
